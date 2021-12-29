@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @vanessaa90
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning HTML
+- 📫 How to reach me: vanessaacosta90@gmail.com
